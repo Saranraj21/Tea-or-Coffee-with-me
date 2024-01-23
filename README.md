@@ -1,1 +1,1 @@
-A website to invite your lover for a date 🥰
+A website to invite her for a tea date 🥰
